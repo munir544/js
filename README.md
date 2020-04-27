@@ -1,0 +1,2 @@
+# js
+Mulailah dg bismillah
